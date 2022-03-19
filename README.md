@@ -1,1 +1,2 @@
-# 6706213040_Fahrijal-Syawaludin_Responsive
+# Nama: Fahrijal Syawaludin
+# NIM: 6706213040
